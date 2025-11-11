@@ -81,7 +81,7 @@ This study highlights the importance of **energy efficiency**, **policy-making**
 **Saurabh Shirole**  
 📧 Email: saurabhshirole1@gmail.com 
 
-🔗 [LinkedIn](https://www.linkedin.com/in/saurabh-shirole-19136a361/) | [GitHub](https://github.com/saurabhshirole1)  
+🔗 [LinkedIn](https://www.linkedin.com/in/saurabhshirole1/) | [GitHub](https://github.com/saurabhshirole1)  
 
 ---
 
